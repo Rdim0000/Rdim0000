@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Rdim0000
+- 👀 I’m interested in Tiktok
